@@ -1,4 +1,4 @@
-## Dima Shpak
+## Dmytro Shpak
 ![Dmytro Shpak (2)](https://github.com/user-attachments/assets/05da7841-02a7-4987-86d9-7d3612910f5d)
 
 
